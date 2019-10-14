@@ -1,5 +1,4 @@
 # gg
-pew]
 
 
-fix this pls
+ggggggg have to finish this shiz quickly
